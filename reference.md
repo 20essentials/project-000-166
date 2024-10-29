@@ -1,0 +1,4 @@
+- **Reference ⬇️**
+  - [BUILDING TEXTURE](https://www.sketchuptextureclub.com/textures/architecture/buildings/skycrapers/building-skyscraper-texture-seamless-01011)
+  - [BUILDING TEXTURE OPTIONAL](https://www.textures.com/download/high-rise-glass-0091/71541)
+  - [MARQUEE TEXT ONLINE TUTORIALS INSPIRATION](https://youtu.be/nYpgGFbJeN0?si=I6IfJ_NjlgDY0Zw5)
